@@ -1,5 +1,5 @@
 # AI---Generated-Prompts
-Here, Sharing AI Generated prompts daily..!
+Here, I Share AI Generated prompts daily..!
 
 AI Generated 4 prompts daily for the 100 days and those topics along with prompts one-by-one.
 
