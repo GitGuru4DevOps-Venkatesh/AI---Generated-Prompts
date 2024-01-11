@@ -3,7 +3,7 @@ Here, Sharing AI Generated prompts daily..!
 
 AI Generated 4 prompts daily for the 100 days and those topics along with prompts one-by-one.
 
-I don't have real-time access to current trends. However, I can provide you with a list of general prompts that often generate interest on social media. These prompts cover a range of themes that you can use to generate AI images for your daily posts. Feel free to adapt them based on your audience and preferences.
+I have provided you with a list of general prompts that often generate interest on social media. These prompts cover a range of themes that you can use to generate AI images for your daily posts. Feel free to adapt them based on your audience and preferences.
 
 ### Futuristic Themes:
 1. **City of Tomorrow:** Envision a futuristic cityscape with advanced architecture.
